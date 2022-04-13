@@ -1,5 +1,4 @@
- ![Gabriela Akiko (1)](https://user-images.githubusercontent.com/64495860/163229863-6d80b42f-bb68-4aaa-9126-513b666b8a02.png)
- 
+![Gabriela Akiko (3)](https://user-images.githubusercontent.com/64495860/163263244-6dde989d-a0e0-47d2-9c52-22d3ea71ff72.gif)
 ## 
 
 <div align=center>
