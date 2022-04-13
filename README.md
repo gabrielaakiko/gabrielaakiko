@@ -1,3 +1,5 @@
+ ![Gabriela Akiko (1)](https://user-images.githubusercontent.com/64495860/163229863-6d80b42f-bb68-4aaa-9126-513b666b8a02.png)
+
  ### Olá, seja bem vindo ao meu Github !!
 
 - 🌱 Estudante de informática para internet
